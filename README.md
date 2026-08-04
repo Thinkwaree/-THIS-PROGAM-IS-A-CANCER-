@@ -1,1 +1,1 @@
-[now you're starting to get it !]<img width="200" height="100" alt="Image" src="https://github.com/user-attachments/assets/cb5f2b74-42d3-41f8-9748-9141cad143d9" />
+![image alt](https://github.com/Thinkwaree/-THIS-PROGAM-IS-A-CANCER-/blob/98dfd99a189c67e73f7a25435df6b8edf96e30e3/200.png)
